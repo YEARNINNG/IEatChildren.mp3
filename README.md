@@ -10,7 +10,7 @@
 -> *Feel free to interact!!! Im very nice and sweet and very approachable trust!!* ![image](https://github.com/user-attachments/assets/03959b96-f1ba-41b5-9088-27072a880363)
 
 
--> C(uddle) + H(ide) Are always encouraged! ![image](https://github.com/user-attachments/assets/74880f49-10fe-4712-ba86-11d36e8ed06f)
+-> C(uddle) + H(ide) Are always encouraged unless my name states otherwise!! ![image](https://github.com/user-attachments/assets/74880f49-10fe-4712-ba86-11d36e8ed06f)
 
 
 -> No Insp/Copy without permission pls and thank yew!! ![image](https://github.com/user-attachments/assets/bc952820-a821-44a4-a491-99ff5915ad44)
