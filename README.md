@@ -24,10 +24,10 @@
 
 -> **Don't start drama over little stuff like ships please..** ![image](https://github.com/user-attachments/assets/d6be83bb-fa73-4584-87c7-c1cdb2bce578)
 
--> I don't rlly care about ships as long as they're not incest involved or adult x minor weird ass ships ![image](https://github.com/user-attachments/assets/50039ea8-1873-4da8-b622-12e89e128ab5)
+-> I don't rlly care about ships as long as they're not incest involved or adult x minor weird ass ships .. but please remember everyone has their own preferences ! ![image](https://github.com/user-attachments/assets/50039ea8-1873-4da8-b622-12e89e128ab5)
 
 
--> Uh yes i need friends!! read my carrd that i linked 4 more info, lovely! ![image](https://github.com/user-attachments/assets/e15fbae5-ec77-4935-b40d-785d654cfe3a)
+-> i need friends!! read my carrd that i linked 4 more info, lovely! ![image](https://github.com/user-attachments/assets/e15fbae5-ec77-4935-b40d-785d654cfe3a)
 
 ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎   ‎![image](https://github.com/user-attachments/assets/214445e9-4baa-405b-b066-fde6034d683e)
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎![image](https://github.com/user-attachments/assets/10fb83da-9962-4ae1-afbd-717c152b8266)
