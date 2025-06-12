@@ -1,9 +1,6 @@
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎  ‎![image](https://github.com/user-attachments/assets/baab9ad2-03cd-42a7-ac71-c6674a4079ff)
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/86b5a2d5-9322-4dc1-96cd-d69b1af71284)
+
 ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎
-
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎  ‎ ![image](https://github.com/user-attachments/assets/dce13944-0f95-46b9-9b35-2a19100dcfcf)
-
 
 
 
@@ -29,15 +26,15 @@
 
 -> i need friends!! read my carrd that i linked 4 more info, lovely! ![image](https://github.com/user-attachments/assets/e15fbae5-ec77-4935-b40d-785d654cfe3a)
 
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎ ‎ ‎ ‎ ‎   ‎![image](https://github.com/user-attachments/assets/214445e9-4baa-405b-b066-fde6034d683e)
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎![image](https://github.com/user-attachments/assets/10fb83da-9962-4ae1-afbd-717c152b8266)
 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ![image](https://github.com/user-attachments/assets/5772b3e2-22be-4de1-987c-5f09e2b48e8d)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎![image](https://github.com/user-attachments/assets/72dbafea-18ef-4410-9177-d051d637a48d)
+ ‎ ‎![image](https://github.com/user-attachments/assets/246308df-e539-4081-859e-fb380cf681c0) 
+![image](https://github.com/user-attachments/assets/35c624fa-3fc5-4a28-b209-0c1e93289e40)
 
-Dividers by necroangelz on tumblr!! ♡
+
+low poly chiikawa & friends by kcamberart on tumblr!! ♡
 
 My Melody Favicons by lunneclothing on tumblr!! ♡
 
-Hello Kitty and Hello Daniel png by decomails on tumblr!!  ♡
-
+chiikawa, hachiware and usagi drawings by sweetsourbelt on tumblr!! ♡
